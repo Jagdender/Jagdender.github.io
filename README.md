@@ -1,4 +1,4 @@
 # Hi! 👋
-Plz turn to [](https://jagdender.ink)
+Plz turn to [My Own Blog](https://jagdender.ink)
 
 Thank u !
