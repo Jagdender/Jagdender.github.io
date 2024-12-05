@@ -1,2 +1,4 @@
-# Jagdender.github.io
-My github page.
+# Hi! 👋
+Plz turn to [](https://jagdender.ink)
+
+Thank u !
